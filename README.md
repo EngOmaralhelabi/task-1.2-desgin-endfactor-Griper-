@@ -1,1 +1,1 @@
-# task-1.2-desgin-endfactor-Griper-
+# task-1.2-desgin-end effactor-Griper-
